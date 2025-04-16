@@ -1,0 +1,2 @@
+# atkanbirseydeniyo
+Yok bakmak yasak
